@@ -1,0 +1,1 @@
+# economist-democrary-index-chart
